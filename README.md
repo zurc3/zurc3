@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently a student<br>👯 I’m looking to collaborate with the richest man <br>🤝 I’m looking for help with money<br>🌱 I’m currently learning life<br>💬 Ask me about cars<br>⚡ I more active at midnight
+🔭 I’m currently a student<br>👯 I’m looking to collaborate with the richest man <br>🤝 I’m looking for help with money<br>🌱 I’m currently learning life<br>💬 Ask me about cars<br>⚡ I more active in midnight
 
 
 ## 🌐 Socials:
